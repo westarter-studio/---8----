@@ -11,3 +11,4 @@
 ## Гайды-статьи, где есть полезная для меня информация
 Бот с ChatGPT из тг
 Kodland
+MTMyOTQ4MDc3MzEyODE2MzM1OQ.GpxzGX.r1EKE1MPvyiioF_OxNWLzZWTyCb9Kkiu_G4Go0 А ЭТО ТОКЕ НЕ ЗАБУДЬ ФУФЫРКА НЕ ПРИЧЕСАНАЯ
